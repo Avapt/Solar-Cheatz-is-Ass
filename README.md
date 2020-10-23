@@ -5,3 +5,6 @@ File was to big so heres a mega link
 
 
 https://mega.nz/folder/ZixyRSRI#sJaVKAZlU8ohZv-XgWVXng
+
+
+also only updated to 14.30 so update urself kek
